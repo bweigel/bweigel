@@ -1,4 +1,4 @@
-## 🚀 Hey there! I'm Ben (🏳️‍🌈He/Him🏳️‍🌈)
+## 🚀 Hey there! I'm Ben (🏳️‍🌈any pronoun🏳️‍🌈)
 
 📚 **Background**: 
 - PhD in Chemistry turned Cloud Coordinator & Tech Lead.
